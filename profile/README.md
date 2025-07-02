@@ -36,7 +36,7 @@ Engage in live sessions where experienced traders share insights into strategies
 
 Join a vibrant Discord community of like-minded traders, fostering a culture of learning, sharing, and mutual support.
 
-[Join The Options Cartel Now](https://kelexbawz.com/the-options-cartel)
+[Join The Options Cartel Now](https://whop.com/the-options-cartel?a=kelechienwere1234)
 
 ---
 
@@ -48,7 +48,7 @@ The Options Cartel offers flexible pricing to cater to different needs:
 
 * **Full Access**: For \$84.99/month, gain comprehensive access to all features, including AI tools, real-time alerts, and exclusive community channels.
 
-[Join The Options Cartel Now to Unlock Full Access](https://kelexbawz.com/the-options-cartel)
+[Join The Options Cartel Now to Unlock Full Access](https://whop.com/the-options-cartel?a=kelechienwere1234)
 
 ---
 
@@ -72,7 +72,7 @@ The Options Cartel is tailored for:
 
 * **Supportive Community**: Engage with a network of traders, share experiences, and learn collaboratively.
 
-[Join The Options Cartel Now to Start Your Trading Journey](https://kelexbawz.com/the-options-cartel)
+[Join The Options Cartel Now to Start Your Trading Journey](https://whop.com/the-options-cartel?a=kelechienwere1234)
 
 ---
 
@@ -98,6 +98,6 @@ Users commend the platform for its comprehensive resources, real-time alerts, an
 
 The Options Cartel stands out as a robust trading community, offering a blend of education, real-time insights, and community support. Whether you're a novice trader or an experienced one seeking to refine your strategies, The Options Cartel provides the tools and environment conducive to growth.
 
-[Join The Options Cartel Now to Elevate Your Trading Experience](https://kelexbawz.com/the-options-cartel)
+[Join The Options Cartel Now to Elevate Your Trading Experience](https://whop.com/the-options-cartel?a=kelechienwere1234)
 
 ---
